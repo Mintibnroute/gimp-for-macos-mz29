@@ -1,4 +1,4 @@
-# 
+# elite Gimp for macOS Action | AI upscaling + auto-retouch is the best Gimp for macOS action, featuring AI upscaling and auto-retouch. Safe, efficient, and optimized for designers
 
 
 
